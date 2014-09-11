@@ -8,4 +8,4 @@ So, I'm a psych major, and I have decided to pursue a field of study that is rea
 
 Well, no sense dragging this out. 
 
-Avanti.
+Avanti!
